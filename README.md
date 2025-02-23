@@ -14,6 +14,3 @@
 - 🤔 I’m looking for help with learning more development and Data Analysis
 - 😄 Pronouns: Her/She
 - ⚡  Fun Fact: My dream its to have a Golden Retriver and he's name will be Eduardo
-
-### Contact
-   ![ícone linkedin](https://img.icons8.com/?size=39&id=108812&format=png&color=000000) How to reach me: larissa-rocha-9a6538119
